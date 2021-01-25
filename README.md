@@ -1,2 +1,2 @@
-# semuel-erick-manina
+# erick-manina
 1000
